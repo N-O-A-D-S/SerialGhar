@@ -3,7 +3,7 @@
 **[No Ads]** Download **Yeh Rishta Kya Kehlata Hai 14th February 2025 Full Episode**? watch the latest episode of ye rishta kya kehlata hai online without ads.
 
 ## Ye Rishta Kya Kehlata Hai Today Episode Download
-![Yeh-Rishta-Kya-Kehlata-Hai.jpg](https://i.postimg.cc/NfQvqXYs/Yeh-Rishta-Kya-Kehlata-Hai.jpg)
+[![Yeh-Rishta-Kya-Kehlata-Hai.jpg](https://i.postimg.cc/NfQvqXYs/Yeh-Rishta-Kya-Kehlata-Hai.jpg)](#)
 
 ### [➤ Download Without Ads]() 
 
